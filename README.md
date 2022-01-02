@@ -1,0 +1,2 @@
+# dDoS
+Jangan Abuse syng
